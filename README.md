@@ -1,0 +1,2 @@
+# premium-equatorial-dial-001-equatorial-sundial-polar-axi
+Tired of scattered notes and chaotic project files when tracking your equatorial sundial and polar axis builds? The Equatorial Sundial &amp; Polar Axis Craft Hub organizes every dimension of your celestial crafting in one beautifully structured Notion workspace.  This template transforms how makers, educators, and astronomers document their equatorial
